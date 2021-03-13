@@ -21,4 +21,6 @@ ambos tienen  un procesador  Zen  2 de 8 nucleos pero el del XBOX va a 3.8 GHz y
 ¿Donde obtuvo Wanda la magia del caos?
 Wanda nació con esa magia, pero al entrar en contacto con la gema de la mente se fortalecieron 
 comentarios: Me fue dificil registrarme en la pagina, tuve que probar con tres diferentes correos electronicos, me confundi un poco al ir realizando la pracitca, ya que confundia algunas funciones
-conclusión: es importante a aprender a usar estas paginas para poder aprovecharlas y usarlas en nuestra vida academica como una herramienta util
+conclusión: es importante a aprender a usar estas paginas para poder aprovecharlas y usarlas en nuestra vida academica como una herramienta utilDescubrir y utilizar herramientas de software que se ofrecen en Internet que permitan,, r
+realizar trabajos  y actividades  de forma organizada 
+
